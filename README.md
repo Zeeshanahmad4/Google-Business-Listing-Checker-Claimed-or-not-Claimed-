@@ -1,0 +1,1 @@
+# Google-Business-Listing-Checker-Claimed-or-not-Claimed-
